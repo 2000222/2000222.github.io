@@ -7,4 +7,5 @@ https://2000222.github.io/
 
 ## 2020.12.16 Update: 
 Start to run my own wechat official account ! :watermelon:
-Will add it the OR code to my website. 
+
+Will add the OR code to my website. 
