@@ -9,3 +9,5 @@ https://2000222.github.io/
 Start to run my own wechat official account ! :watermelon:
 
 Will add the OR code to my website. 
+
+The following is my WeChat official account QR code, welcome to follow me!
