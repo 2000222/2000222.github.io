@@ -2,7 +2,7 @@
 Hanxiao Chen (Sarah)'s Personal Website <br>
 **Computer Science** lover, **Music** fan,  **Math** devotee～<br>
 Try my best to achieve my sweet dreams. <br>
-Keep fighting and Fly Away！<br>
+Keep Thinking, Fighting and Fly Away！<br>
 https://2000222.github.io/
 
 ## 2020.12.16 Update: 
