@@ -6,7 +6,7 @@ Keep Thinking, Dreaming and Flying all around the world 🌏！<br>
 https://2000222.github.io/
 
 ## 2020.12.16 Update: 
-Start to run my own wechat official account ! :watermelon:
+Start to run my own wechat official account ! :watermelon: (Now it's over.)
 
 The following is my WeChat official account QR code, welcome to follow me ! :kissing_heart:
 
